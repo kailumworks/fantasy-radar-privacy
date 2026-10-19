@@ -1,2 +1,2 @@
 # fantasy-radar-privacy
-Política de privacidad de Fantasy Radar - Kailum Works
+Web oficial de política de privacidad de Fantasy Radar - Kailum Works
